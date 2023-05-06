@@ -4,4 +4,4 @@
 [上課連結網址](https://meet.google.com/ghs-xzys-oaj)
 
 ### 2023_05_06_早上
-[錄影]()
+[錄影](https://youtube.com/live/fWLSVRak3Cg)
