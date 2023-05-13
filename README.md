@@ -13,4 +13,7 @@
 ### 2023_05_13_早上
 [錄影] https://youtube.com/live/6-WKuJH0YsU
 
+### 2023_05_13_下午
+[錄影] https://youtube.com/live/1hcDL8rzkvM
+
 
