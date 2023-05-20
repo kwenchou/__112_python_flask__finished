@@ -11,9 +11,14 @@
 [錄影](https://youtube.com/live/s1B70OYObks)
 
 ### 2023_05_13_早上
-[錄影] https://youtube.com/live/6-WKuJH0YsU
+[錄影](https://youtube.com/live/6-WKuJH0YsU)
 
 ### 2023_05_13_下午
-[錄影] https://youtube.com/live/1hcDL8rzkvM
+[錄影](https://youtube.com/live/1hcDL8rzkvM)
 
+### 2023_05_20_早上
+[錄影](https://youtube.com/live/lpKwq1eEO7E)
+
+### 2023_05_20_下午
+[錄影](https://youtube.com/live/lpKwq1eEO7E)
 
