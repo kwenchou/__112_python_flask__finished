@@ -20,5 +20,5 @@
 [錄影](https://youtube.com/live/lpKwq1eEO7E)
 
 ### 2023_05_20_下午
-[錄影](https://youtube.com/live/lpKwq1eEO7E)
+[錄影](https://youtube.com/live/ih6-DGSU3uU)
 
