@@ -35,3 +35,6 @@
 ### 2023_06_03_下午
 [錄影](https://youtube.com/live/m7u965m84SY)
 
+### 2023_06_10_早上
+[錄影](https://youtube.com/live/BpQaoxtG2o0)
+
